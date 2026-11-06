@@ -43,7 +43,7 @@ Yet the European Court of Human Rights concluded in July 2023 that Russian autho
 
 A government capable of investigating its enemies demonstrated no comparable determination to expose the sponsors of this political murder.
 
-**The murder of Boris Nemtsov remains an indictment of the Russian state's failure to deliver justice.**
+**The murder of Boris Nemtsov remains an indictment of the corrupt justice system of the Russian state.**
 
 ### Vladimir Kara-Murza — The Persecution of the Living
 
