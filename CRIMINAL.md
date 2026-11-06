@@ -1,5 +1,5 @@
-# A DECLARATION AGAINST TYRANNY
-## An Accounting of the Crimes of Vladimir Putin and a Demand for His Full and Unconditional Surrender
+# END PUTIN
+## A Declaration of Crimes Against Humanity, a Demand for Justice, and an Ultimatum for Unconditional Surrender
 
 **November 6, 2026**
 
