@@ -349,23 +349,35 @@ A generation of productive lives has been lost to combat, imprisonment, displace
 
 The children who will never know their fathers, the families permanently divided, the lives never lived, and the opportunities destroyed must also be entered into the accounting of this war.
 
-## VIII. Our Appeal to the Russian People
+## VIII. Our Reckoning with the Russian People
 
-We distinguish the Russian people from the government that rules them.
+Putinism is a cancer upon Russian society. Like MAGA in America, it feeds upon manufactured grievances, political fanaticism, and the worship of one man above the institutions of government.
 
-We recognize their equal right to life, liberty, security, and democratic self-government.
+We will not pretend that Vladimir Putin rules without supporters, enablers, profiteers, and willing accomplices.
 
-We recognize the courage of Russians who have resisted political oppression, opposed the invasion of Ukraine, exposed official corruption, and demanded justice for the murdered and imprisoned.
+Nor will we confuse those who resist him with those who celebrate his crimes.
 
-Our demands are not for the destruction of Russia.
+We recognize the extraordinary courage of Russians who have risked their freedom, livelihoods, and lives to expose corruption, oppose aggression, and defend the rights of their fellow citizens.
 
-Nor do we seek the collective punishment of its citizens.
+But courage demands more than private disagreement.
 
-We call upon Russian soldiers to refuse unlawful orders, protect civilians, respect the rights of prisoners, and lay down their arms rather than perpetuate aggression.
+**Those who celebrate the invasion, excuse the murder of civilians, or knowingly enable atrocities cannot hide indefinitely behind the claim that they were merely following their government.**
 
-We call upon Russian authorities to cease political persecution and cooperate with international criminal investigations.
+The Russian people have the same rights to life, liberty, and self-government as every other people. With those rights comes a responsibility to confront injustice, according to each person's ability and circumstances.
 
-We call upon the Russian people to determine their own future through the peaceful exercise of their fundamental rights.
+We demand that Russian soldiers refuse unlawful orders, protect civilians, respect prisoners, and abandon the war of aggression against Ukraine.
+
+We demand that those responsible for political persecution, torture, corruption, and murder be exposed and held accountable.
+
+We do not seek the destruction of Russia. We seek an end to the political system that has inflicted so much destruction upon Russia and its neighbors.
+
+We reject collective punishment. We equally reject collective absolution.
+
+**No Russian citizen is guilty merely for being Russian. No perpetrator is innocent merely for being Russian.**
+
+The Russian people must be free to determine their own future.
+
+And Ukraine must never again be made to pay the price for Russia's failure to secure that freedom.
 
 ## IX. Our Demands
 
