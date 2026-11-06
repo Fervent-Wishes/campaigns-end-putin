@@ -31,7 +31,7 @@ Among the most consequential cases are those of Boris Nemtsov, Vladimir Kara-Mur
 
 ### Boris Nemtsov — The Assassination of Political Opposition
 
-**He has** presided over a government that failed to establish who ordered the assassination of Boris Nemtsov, a former deputy prime minister and one of Russia's most prominent democratic opposition leaders.
+**He stands accused** of ordering the assassination of Boris Nemtsov, a former deputy prime minister and one of Russia's most prominent democratic opposition leaders.
 
 On February 27, 2015, Nemtsov was shot dead on a bridge overlooking the Kremlin.
 
