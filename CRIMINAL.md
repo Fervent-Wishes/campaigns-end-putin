@@ -83,7 +83,7 @@ His name now identifies an international framework for sanctions against human r
 
 ### Alexei Navalny — Poisoning, Imprisonment, and Death
 
-**He has** presided over the persecution of Alexei Navalny, the opposition leader who exposed corruption among Russia's political elite.
+**He stands accused** of assassinating Alexei Navalny, the opposition leader who exposed corruption among Russia's political elite.
 
 Navalny survived a Novichok nerve-agent poisoning in 2020.
 
