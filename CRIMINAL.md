@@ -195,7 +195,41 @@ Yet the European Union has formally condemned Russia's sustained hybrid campaign
 
 **The sovereignty of European nations does not cease to exist merely because an attack is concealed.**
 
-## V. His Wars in Chechnya and Georgia, and the Destruction of Civilian Aircraft
+## V. Belarus — The Keystone of Putin's Imperial Power
+
+**He has** sustained and strengthened the authoritarian government of Alexander Lukashenko, whose violent suppression of the Belarusian democratic movement following the disputed 2020 presidential election drove thousands into imprisonment and exile.
+
+**He has** exploited Belarus's political and economic dependence upon Russia to deepen Moscow's influence over its government, military, infrastructure, and national security.
+
+**He has** used Belarusian territory as a staging ground for his invasion of Ukraine, launching military operations from the north and employing Belarusian infrastructure to support Russian troops, aircraft, missiles, and weapons.
+
+**He has** deepened military integration between Russia and Belarus, including the deployment of Russian nuclear weapons and advanced missile systems, threatening neighboring nations while diminishing Belarus's ability to exercise independent control over its security.
+
+The Belarusian people have resisted.
+
+Following the disputed presidential election of August 2020, hundreds of thousands demonstrated in defense of their political rights.
+
+The government of Lukashenko answered with mass arrests, torture, persecution, and political imprisonment.
+
+United Nations investigators have documented violations constituting crimes against humanity, including imprisonment and persecution of political opponents.
+
+Belarusian opposition leader **Sviatlana Tsikhanouskaya** and the country's democratic movement continue to demand free elections, the release of political prisoners, and restoration of national sovereignty.
+
+The complicity of Lukashenko's government in Russian aggression must not be confused with the will of the Belarusian people.
+
+Belarus has been an independent nation since 1991. Its sovereignty belongs to its citizens, not to Vladimir Putin or Alexander Lukashenko.
+
+**An independent, democratic Belarus would deprive Putin of a crucial military staging ground, weaken his control over Eastern Europe, and undermine the imperial ambitions upon which his foreign policy depends.**
+
+It would demonstrate that Russia's neighbors possess the right to determine their own futures without Moscow's permission.
+
+The strategic consequences would extend from Ukraine to Poland, Lithuania, Latvia, and the wider European continent.
+
+The restoration of Belarusian democracy would not by itself guarantee the end of Putin's government. It would, however, strike at a central instrument of his regional power.
+
+**We therefore declare that the freedom and independence of Belarus are essential to a durable European peace, and that no settlement with Russia should sacrifice the sovereign rights of the Belarusian people.**
+
+## VI. His Wars in Chechnya and Georgia, and the Destruction of Civilian Aircraft
 
 ### Chechnya — The Destruction of Grozny
 
@@ -265,7 +299,7 @@ But the absence of an established intent to shoot down civilians does not absolv
 
 **The skies must not become another theater in which civilians bear the fatal consequences of Russian military operations.**
 
-## VI. His War of Aggression Against Ukraine
+## VII. His War of Aggression Against Ukraine
 
 **He has** violated the sovereignty and territorial integrity of Ukraine through military aggression, beginning with the occupation and attempted annexation of Crimea in 2014 and escalating into the full-scale invasion of February 24, 2022.
 
