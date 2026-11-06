@@ -1,4 +1,4 @@
-# END PUTIN
+# WAR WITH PUTIN
 ## A Declaration of Crimes Against Humanity, a Demand for Justice, and an Ultimatum for Unconditional Surrender
 
 **November 6, 2026**
